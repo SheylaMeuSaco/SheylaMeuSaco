@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on roubar papelão molhado
 - 📫 How to reach me procurar no x videos
 - 😄 Pronouns: alfa
-- ⚡ Fun fact: memhuma
+- ⚡ Fun fact: nenhuma
 
 <!---
 SheylaMeuSaco/SheylaMeuSaco is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
